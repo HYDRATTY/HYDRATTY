@@ -3,7 +3,7 @@
 🌱 I’m currently learning SAP ABAP & Fiori | AI Workflow Automation | Advanced Excel & Power BI
 💞️ I’m looking to collaborate on tech-for-impact projects, especially in education, healthcare, and community development
 📫 How to reach me:
-    📧 hydratechsolutions@gmail.com
+    📧 hydratech.cracky@gmail.com
     💬 LinkedIn – www.linkedin.com/in/constantine-juma
 😄 Pronouns: He/Him
 ⚡ Fun fact: I love simplifying tech for everyday users and building tools that make life easier for communities 🚀
